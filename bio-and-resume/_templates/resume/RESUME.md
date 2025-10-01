@@ -1,6 +1,7 @@
 # Kimberly L. McMoore
 **Last 4:** 3982
-**Email:** kmcmoor@hawaii.edu · (808) 421-9114
+**Email:** kmcmoor@hawaii.edu
+**Phone:** (808) 421-9114
 **Permanent Address:** Colorado Springs, CO, 80923
 
 **Applying for:** Federal Employment
