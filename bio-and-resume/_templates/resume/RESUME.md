@@ -56,6 +56,6 @@ Motivated Management Information Systems and International Business student seek
 ---
 
 ## SKILLS
-**Technical Writing:** User manuals, internal documentation, compliance reporting (NASA SBIR) 
-**Research & Analysis:** Market research for aerospace technologies, funding opportunity identification 
+**Technical Writing:** User manuals, internal documentation, compliance reporting (NASA SBIR)  
+**Research & Analysis:** Market research for aerospace technologies, funding opportunity identification  
 **Professional Skills:** Communication, attention to detail, adaptability, critical thinking
