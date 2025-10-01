@@ -1,10 +1,10 @@
 # Kimberly L. McMoore
-**Last 4:** 3982
-**Email:** kmcmoor@hawaii.edu
-**Phone:** (808) 421-9114
+**Last 4:** 3982  
+**Email:** kmcmoor@hawaii.edu  
+**Phone:** (808) 421-9114  
 **Permanent Address:** Colorado Springs, CO, 80923
 
-**Applying for:** Federal Employment
+**Applying for:** Federal Employment  
 **Job Type:** Internships • Full-time
 
 **Locations at any of the following bases:** Peterson Space Force Base; Shriever Space Force Base
